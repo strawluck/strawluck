@@ -1,4 +1,4 @@
-# Welcome! I'm Jason! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif">
+# Welcome! I'm Jason!
 ### It's a pleasure to finally meet you!
 
 I am currently pursueing a Mathematics and Business Double Degree with a minor in Computer Science @ the University of Waterloo and Wilfred Laurier University! 🌱 <br>
